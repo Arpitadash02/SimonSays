@@ -1,1 +1,1 @@
-This is a very intrestion game.
+This is a very intresting game.
